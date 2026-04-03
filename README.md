@@ -1,2 +1,2 @@
-# Brick-Drip--ship-it.github.io
+# Brick-Drip
 witam nazywam się wojtek sprzedaje lego i ciuchy wszystko orginalne i dobrej jakości
